@@ -1,4 +1,4 @@
-
+Get the ultimate ClickUp for macOS addon with rare ClickUp for macOS Addon | cloud backup + calendar integration. Featuring cloud backup and calendar integration, it's the best
 
 
 
